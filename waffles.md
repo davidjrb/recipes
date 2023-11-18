@@ -14,6 +14,7 @@
 - Egg replacer for the equivalent of 2 eggs
 - 2 tablespoons melted vegan butter
 - 1 teaspoon pure vanilla extract
-- 1 3/4 cups unsweetened plant milk (coconut milk not recommended)
-- 1/2 tablespoon apple cider vinegar or fresh lemon juice
-- 1/2 teaspoon vanilla drop
+- 1¾ cups unsweetened plant milk (coconut milk not recommended)
+- ½ tablespoon apple cider vinegar
+- ½ fresh lemon juice
+- ½ teaspoon vanilla drop
