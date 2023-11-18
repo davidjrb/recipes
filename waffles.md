@@ -3,6 +3,7 @@
 **Dry Ingredients:**
 - 2 cups all-purpose flour
 - 2 teaspoons baking powder
+- 1/2 teaspoon baking soda
 - ¾ teaspoon baking soda
 - 1 tablespoon sugar
 - ¼ teaspoon finely ground sea salt
