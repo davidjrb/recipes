@@ -5,7 +5,7 @@
 - 2 teaspoons baking powder
 - ¾ teaspoon baking soda
 - 2 tablespoons sugar
-- ¼ teaspoon finely ground sea salt
+- ¾ teaspoon salt
 - 2 teaspoons of eggreplacer
 
 **Wet Ingredients:**
