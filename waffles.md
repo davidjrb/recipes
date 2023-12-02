@@ -28,7 +28,7 @@
 7. applying cooking oil to hot waffle iron
 8. 1 ladle = 2 waffles
 
-Suggested toppings:
+**Suggested toppings:**
 - vegan whipped cream
 - maple syrup
 - sliced bananas
