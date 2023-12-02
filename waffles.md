@@ -12,8 +12,7 @@
 - 1 small ripe mashed banana
 - 1 tablespoon maple syrup
 - 2 tablespoons melted vegan butter
-- 1 teaspoon pure vanilla extract
 - 1¾ cups unsweetened oatmilk
 - ½ tablespoon apple cider vinegar
-- ½ fresh lemon juice
-- ½ teaspoon vanilla drop
+- ½ tablespoon fresh lemon juice
+- ½ teaspoon vanilla drops
