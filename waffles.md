@@ -32,4 +32,7 @@
 - vegan whipped cream
 - maple syrup
 - sliced bananas
-- powdered sugar 
+- powdered sugar
+
+_**Pro tip:**_
+- freeze the waffles for a quick snack later 
