@@ -22,13 +22,14 @@
 1. melt the vegan butter in a pan
 2. mix the dry ingredients in a bowl
 3. cool vegan butter to room temperature 
-3. mash the banana
-4. place wet ingredients in bowl
-5. mix, but leave it chunky. don't overmix
-6. applying cooking oil to hot waffle iron
-7. 1 ladle = 2 waffles
+4. mash the banana
+5. place wet ingredients in bowl
+6. mix, but leave it chunky. don't overmix
+7. applying cooking oil to hot waffle iron
+8. 1 ladle = 2 waffles
 
 Suggested toppings:
 - vegan whipped cream
 - maple syrup
 - sliced bananas
+- powdered sugar 
