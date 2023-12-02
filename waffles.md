@@ -7,12 +7,28 @@
 - 2 tablespoons sugar
 - ¾ teaspoon salt
 - 2 teaspoons of eggreplacer
+- ¼ teaspoon cinnamon 
 
 **Wet Ingredients:**
-- 1 small ripe mashed banana
+- 1 ripe mashed banana
 - 1 tablespoon maple syrup
 - 2 tablespoons melted vegan butter
 - 1¾ cups unsweetened oatmilk
 - ½ tablespoon apple cider vinegar
 - ½ tablespoon fresh lemon juice
 - ½ teaspoon vanilla drops
+
+
+1. melt the vegan butter in a pan
+2. mix the dry ingredients in a bowl
+3. cool vegan butter to room temperature 
+3. mash the banana
+4. place wet ingredients in bowl
+5. mix, but leave it chunky. don't overmix
+6. applying cooking oil to hot waffle iron
+7. 1 ladle = 2 waffles
+
+Suggested toppings:
+- vegan whipped cream
+- maple syrup
+- sliced bananas
