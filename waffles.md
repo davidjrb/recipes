@@ -18,7 +18,7 @@
 - ½ tablespoon fresh lemon juice
 - ½ teaspoon vanilla drops
 
-
+**Baking:**
 1. melt the vegan butter in a pan
 2. mix the dry ingredients in a bowl
 3. cool vegan butter to room temperature 
