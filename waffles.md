@@ -33,6 +33,7 @@
 - maple syrup
 - sliced bananas
 - powdered sugar
+- cinnamon 
 
 _**Pro tip:**_
 - freeze the waffles for a quick snack later 
